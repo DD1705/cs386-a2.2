@@ -1,3 +1,3 @@
 D.D. Didier
 
-i like video games
+i play video games
